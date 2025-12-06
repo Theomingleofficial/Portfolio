@@ -93,7 +93,7 @@ If you'd like to collaborate, hire, or network — feel free to reach out!
 Omingle1620@gmail.com
 
 📱 Phone:
-+91 7796427496
++91 7XXXXXXXXX
 
 🌍 Location:
 Pune, Maharashtra, India
